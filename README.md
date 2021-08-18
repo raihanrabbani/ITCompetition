@@ -1,1 +1,1 @@
-https://discord.com/channels/543114638766899210/831893779724107786/874078787648765982
+https://bit.ly/PrototypeITCompetiton
